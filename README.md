@@ -11,5 +11,5 @@ I have experience with languages like Python, C, and I am always eager to learn 
 I am open to opportunities to learn more and apply my knowledge to real-world projects!
 
 **How to reach me:**
-- [LinkedIn] www.linkedin.com/in/alisson-tavares-21b007281
+- [LinkedIn] www.linkedin.com/in/alisson-tavares
 - [Email] alissontavares5611@gmail.com
